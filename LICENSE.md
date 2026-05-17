@@ -1,4 +1,4 @@
-# 
+# advanced Wave for PC plugins is the best Wave for PC plugins with accounting and user-permissions. Safe, reliable, and optimized for maximum performance.
 
 
 
